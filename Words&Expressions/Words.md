@@ -2,38 +2,38 @@
 
 | Chinese words | English words | Explaination |
 | --- | --- | --- |
-|  | 外家拳 | External Kongfu |
-|  | 内家拳 | Internal Kongfu |
-|  | 大内高手 | imperial swordsman / Imperial palace master |
-|  | 直拳 | straight arm blow |
-|  | 太极 | Taiji |
-|  | 形意 | Xinyi |
+| 外家拳 | External Kongfu |
+| 内家拳 | Internal Kongfu |
+| 大内高手 | imperial swordsman / Imperial palace master |
+| 直拳 | straight arm blow |
+| 太极 | Taiji |
+| 形意 | Xinyi |
 | 八卦掌 | baguazhang | eight trigram palm |
-|  | 正宗 | authentic |
-|  | 传承 | linage/ pass on |
-|  | 师父 | Shifu |
+| 正宗 | authentic |
+| 传承 | linage/ pass on |
+| 师父 | Shifu |
 | 家门 | Kongfu family | Kongfu linage from Gong Baotian |
-|  | 徒弟 | prentice |
-|  | 内劲 | ... |
-|  | 松劲 | relaxing skills |
+| 徒弟 | prentice |
+| 内劲 | integrated power |
+| 松劲 | relaxing skills |
 | 整劲 | entire body moving skills | Trained force |
-|  | 听劲 | assessing skills |
-|  | 兵法 | art of the wa |
-|  | 战术 | strategy |
-|  | 技击 | combat |
-|  | 对手 | opponent |
-|  | 一拳一脚 | fist and kicks |
-|  | 用心的功夫 | mindful skills |
-|  | 贪婪 | greedy |
-|  | 勤奋 | diligent |
-|  | 偷懒 | lazy |
-|  | 拙力 | hard punch |
-|  | 发劲 | Releasing trained force |
-|  | 步法 | Application steps |
-|  | 推手 | Pushing hands |
+| 听劲 | assessing skills |
+| 兵法 | art of the war |
+| 战术 | strategy |
+| 技击 | combat |
+| 对手 | opponent |
+| 一拳一脚 | fist and kicks |
+| 用心的功夫 | consious skills |
+| 贪婪 | greedy |
+| 勤奋 | diligent |
+| 偷懒 | lazy |
+| 拙力 | hard punch |
+| 发劲 | Releasing trained force |
+| 步法 | Application steps |
+| 推手 | Pushing hands |
 | 站桩 | Standing still and find the inner peace | Stand straight like a dropping scale |
-|  | 三体式 | trinity pile-standing |
-| 中正 | impartiality in both physically and mentally | poke the beehive with a stick, you need going foward while always be ready to run away |
+| 三体式 | trinity pile-standing |
+| 中正 | balance | impartiality in both physically and mentally / poke the beehive with a stick, you need going foward while always be ready to run away |
 
 ## Reference
 
