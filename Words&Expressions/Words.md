@@ -2,7 +2,7 @@
 
 | Chinese words | English words | Explaination |
 | --- | --- | --- |
-| 外家拳 | External Kongfu |
+| 外家拳 | External Kongfu | |
 | 内家拳 | Internal Kongfu |
 | 大内高手 | imperial swordsman / Imperial palace master |
 | 直拳 | straight arm blow |
