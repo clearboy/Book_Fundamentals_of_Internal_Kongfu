@@ -20,6 +20,18 @@ Since ancient times, there are numerous training system that improves your healt
 
 If the training only emphasis combat techniques, ....
 
-### Second, view from the point of spirit cultivation, 
+### Second, view from the point of spirit cultivation, to learn internal Kongfu is one of the shortcuts in pursuing Taoism.
+
+Taoism is the fundamental principle of the society and the worlds. 
+
+Why we can learn Taoism through internal Kongfu?
+
+1. The principle of internal Kongfu comes from the nature, and the purpose of learning internal Kongfu is to learn from the nature. And Taoism is actually the learnt principles of mother nature.
+
+2. The learning method of internal Kongfu is as the same as monasticism.
+
+In the pursuit of learning, knowledge is increased daily. While in the pursuit of Dao, actions are reduced daily. 
+
+
 
 
