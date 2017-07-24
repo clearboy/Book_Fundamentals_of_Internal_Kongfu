@@ -48,13 +48,10 @@
   * [Chapter 43 Push hands\(3\)](Fundamentals of Internal Kongfu/Chapter 43.md)
   * [Chapter 44 Stand still\(1\)](Fundamentals of Internal Kongfu/Chapter 44.md)
   * [Chapter 45 Stand still\(2\)](Fundamentals of Internal Kongfu/Chapter 45.md)
-
-
 * [Basic words and expressions](Words&Expressions/README.md)
   * [Basic words](Words&Expressions/Words.md)
   * [Basic expressions of Kongfu](Words&Expressions/Expressions.md)
   * [Basic expressions of Philosophy](Words&Expressions/Philosophy.md)
-
 * [略谈内家拳](略谈内家拳/README.md)
   * [（一）内家拳就是用心的功夫](略谈内家拳/（一）内家拳就是用心的功夫.md)
   * [（二）正宗的内家拳](略谈内家拳/（二）正宗的内家拳.md)
