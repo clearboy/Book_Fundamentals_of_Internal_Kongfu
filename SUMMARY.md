@@ -1,9 +1,8 @@
 # Summary
 
+* [Introduction](README.md)
 
-## [Introduction](README.md)
-
-## [Fundamentals of Internal Kongfu](Fundamentals of Internal Kongfu/README.md)
+* [Fundamentals of Internal Kongfu](Fundamentals of Internal Kongfu/README.md)
   * [Chapter 1 What is internal Kongfu](Fundamentals of Internal Kongfu/Chapter 1.md)
   * [Chapter 2 What is the authentic internal Kongfu](Fundamentals of Internal Kongfu/Chapter 2.md)
   * [Chapter 3 Why we learn internal Kongfu](Fundamentals of Internal Kongfu/Chapter 3.md)
@@ -51,12 +50,12 @@
   * [Chapter 45 Stand still\(2\)](Fundamentals of Internal Kongfu/Chapter 45.md)
 
 
-## [Basic words and expressions](Words&Expressions/README.md)
+* [Basic words and expressions](Words&Expressions/README.md)
   * [Basic words](Words&Expressions/Words.md)
-  * [Basic experssions of Kongfu](Words&Expressions/Expressions.md)
+  * [Basic expressions of Kongfu](Words&Expressions/Expressions.md)
   * [Basic expressions of Philosophy](Words&Expressions/Philosophy.md)
 
-## [略谈内家拳](略谈内家拳/README.md)
+* [略谈内家拳](略谈内家拳/README.md)
   * [（一）内家拳就是用心的功夫](略谈内家拳/（一）内家拳就是用心的功夫.md)
   * [（二）正宗的内家拳](略谈内家拳/（二）正宗的内家拳.md)
   * [（三）练内家拳的意义](略谈内家拳/（三）练内家拳的意义.md)
