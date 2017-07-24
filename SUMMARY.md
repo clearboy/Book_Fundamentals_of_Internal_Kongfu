@@ -1,4 +1,4 @@
-#Summary
+# Summary
 
 * [Introduction](README.md)
 
@@ -50,7 +50,7 @@
   * [Chapter 45 Stand still\(2\)](Fundamentals of Internal Kongfu/Chapter 45.md)
 
 
-* [Basic words and expressions\]\(Words&Expressions/README.md\)](basic-words-and-expressionswordsandexpressionsreadmemd.md)
+* [Basic words and expressions](Words&Expressions/README.md)
   * [Basic words](Words&Expressions/Words.md)
   * [Basic experssions of Kongfu](Words&Expressions/Expressions.md)
   * [Basic expressions of Philosophy](Words&Expressions/Philosophy.md)
