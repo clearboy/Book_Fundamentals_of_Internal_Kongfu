@@ -1,15 +1,18 @@
 @July 24, 2017, by Jay
-> Internal Konfu is Konfu with consciousness.    
 
-What is internal Kongfu basically?  
+> Internal Konfu is Konfu with consciousness.
 
-- Primarily, we define it as kind of skill.  > Skill is quietly different from knowledge. You become skillful by practicing continually while you get the knowledge instantly. It’s similar like the process of learning a skill from the very beginning to master with it. We learn it so as to apply for it.  
+What is internal Kongfu basically?
 
-- As for language learning, we use it for better communication to a higher level.
+* Primarily, we define it as kind of skill.  
 
-- As for swimming skill, we use it as we could swim freely.
+> Skill is quietly different from knowledge. You become skillful by practicing continually while you get the knowledge instantly. It’s similar like the process of learning a skill from the very beginning to master with it. We learn it so as to apply for it.
 
-- As for internal Kongfu, we use it to control ourselves physically and mentally to some extent to reach the expectation. 
+* As for language learning, we use it for better communication to a higher level.
+
+* As for swimming skill, we use it as we could swim freely.
+
+* As for internal Kongfu, we use it to control ourselves physically and mentally to some extent to reach the expectation.
 
 We also name it as Konfu with consciousness.
 
@@ -31,4 +34,23 @@ For an experienced singer who have reached a high vocal level technically, a goo
 
 Techniques of using consciousness is much more difficult than the visible vocal techniques.
 
-It is easier to practice physically with every fist or punch. But it is really hard to pursue the invisible internal force and Taoism.
+It is easier to practice physically with every fist or punch. But it is really hard to pursue the invisible internal force and Taoism.
+
+
+
+
+
+
+
+
+
+
+
+
+
+- - - -
+
+IMy understanding: Internal kung fu is a skill. As opposed to knowledge, you can always deepen your ability to perform this skill. Also, kung fu has 2 parts: the internal and external. The difference is the heart of the effort. The heart of the effort is your spirit directed at a purpose or target. 
+
+Internal kung fu is a skill. As opposed to knowledge, you can always deepen your ability to perform this skill. Also, kung fu has 2 parts: the internal and external. The difference is the heart of the effort. The heart of the effort is your spirit directed at a purpose or target.m
+
