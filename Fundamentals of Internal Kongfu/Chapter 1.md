@@ -1,16 +1,12 @@
+Suggested Final Summary:
 
-
-Suggested Final Summary: 
-
-
-
+Internal Kung Fu is Kungfu practised with an aware mind. A conscious mind. More fundamentally, Internal Kungfu is a skill. As opposed to knowledge you can always deepen your ability to perform it. We use internal Kungfu to help us control ourselves physically and mentally so that we may optimally direct our energies to any purpose we choose.
 
 
 
 
 
-
-Individual Summaries below this line 
+Individual Summaries below this line
 
 \_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
 
