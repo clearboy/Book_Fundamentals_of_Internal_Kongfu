@@ -1,6 +1,22 @@
-@July 24, 2017, by Jay
 
-> Internal Konfu is Konfu with consciousness.
+
+Suggested Final Summary: 
+
+
+
+
+
+
+
+
+
+Individual Summaries below this line 
+
+\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+_^_@July 24, 2017, by Jay
+
+Internal Konfu is Konfu with consciousness.
 
 What is internal Kongfu basically?
 
@@ -36,21 +52,9 @@ Techniques of using consciousness is much more difficult than the visible vocal 
 
 It is easier to practice physically with every fist or punch. But it is really hard to pursue the invisible internal force and Taoism.
 
+* * * -
 
-
-
-
-
-
-
-
-
-
-
-
-- - - -
-
-IMy understanding: Internal kung fu is a skill. As opposed to knowledge, you can always deepen your ability to perform this skill. Also, kung fu has 2 parts: the internal and external. The difference is the heart of the effort. The heart of the effort is your spirit directed at a purpose or target. 
+IMy understanding: Internal kung fu is a skill. As opposed to knowledge, you can always deepen your ability to perform this skill. Also, kung fu has 2 parts: the internal and external. The difference is the heart of the effort. The heart of the effort is your spirit directed at a purpose or target.
 
 Internal kung fu is a skill. As opposed to knowledge, you can always deepen your ability to perform this skill. Also, kung fu has 2 parts: the internal and external. The difference is the heart of the effort. The heart of the effort is your spirit directed at a purpose or target.m
 

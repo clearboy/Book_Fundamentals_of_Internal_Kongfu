@@ -1,4 +1,4 @@
-I occasionally started to learn Kongfu. Since then, it has become one unseparated part from my life. Isabella's rewritten auggeations are in _italics_ -- &gt; _Ever_ _since I began learning Kungfu, even though I started out my practise in small occasions here and there, it could no longer be separated from my life._
+I occasionally started to learn Kongfu. Since then, it has become one unseparated part from my life. Isabella's rewritten suggestions are in _italics_ -- &gt; _Ever_ _since I began learning Kungfu, even though I started out my practise in small occasions here and there, it could no longer be separated from my life._
 
 The journey to learn Kongfu is like an adventure to the core of the earth.
 
