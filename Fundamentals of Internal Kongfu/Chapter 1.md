@@ -1,8 +1,10 @@
 Suggested Final Summary:
 
-Internal Kung Fu is Kungfu practised with an aware mind. A conscious mind. More fundamentally, Internal Kungfu is a skill. As opposed to knowledge you can always deepen your ability to perform it. We use internal Kungfu to help us control ourselves physically and mentally so that we may optimally direct our energies to any purpose we choose.
+Internal Kung Fu is Kungfu practised with an aware mind. A conscious mind. More fundamentally, Internal Kungfu is a skill. As opposed to knowledge you can always deepen your ability to perform it. As with most skills we learn, we learn this skill so that we may apply it. We apply or use internal Kungfu to help us control ourselves physically and mentally so that we may optimally direct our energies to any purpose we choose. Also, Kong Fu has two parts, the Internal Kongfu and the External Kongfu. The difference is the presenxe or absence of the heart of the effort, or consciousness of actions.
 
 
+
+Open Question: _I am still unclear on the section by Jade where she starts delineating consciousness and its use VS consciousness and its how tos... I dont know how that fits into the discussionbof the heart of the effort or your spirit. _
 
 
 
