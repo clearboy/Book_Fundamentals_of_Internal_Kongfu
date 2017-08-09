@@ -28,7 +28,7 @@ Why we stress on that we should use our consciousness to realize the control of 
 
 We also have External Kongfu differs Internal Kongfu. What is the different between them? We would not judge on which one is more premium.
 
- The difference between them is whether you practice Kongfu with all your heart efforts from beginning,as purpose,method and guideline.
+The difference between them is whether you practice Kongfu with all your heart efforts from beginning,as purpose,method and guideline.
 
 Konfu with heart efforts includes two steps basically.Firstly we use heart efforts to do all sorts of things.Secondly we need to know how to do things with heart efforts.
 
@@ -48,5 +48,5 @@ It is easier to practice physically with every fist or punch. But it is really h
 
 * * * -
 
-IMy understanding: Internal kung fu is a skill. As opposed to knowledge, you can always deepen your ability to perform this skill. Also, kung fu has 2 parts: the internal and external. The difference is the heart of the effort. The heart of the effort is your spirit directed at a purpose or target.
+My understanding: Internal kung fu is a skill. As opposed to knowledge, you can always deepen your ability to perform this skill. Also, kung fu has 2 parts: the internal and external. The difference is the heart of the effort. The heart of the effort is your spirit directed at a purpose or target.
 
