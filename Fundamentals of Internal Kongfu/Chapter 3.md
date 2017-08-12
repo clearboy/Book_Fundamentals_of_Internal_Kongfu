@@ -33,11 +33,13 @@ In the pursuit of learning, knowledge is increased daily. While in the pursuit o
 
 
 
+
+
 Aug.11, 2017 By Jade
 
 _Why we would spend time on practicing internal Kongfu even devote the rest of our life to it_
 
-_**From the point of view of physical enhancement:**_
+#### _**From the point of view of physical enhancement:**_
 
 _Internal Kongfu is one of the few martial arts that focus both on combat and health._
 
@@ -57,17 +59,13 @@ _This way of training relies on deliberate conscious in mind which finally leads
 
 _You will physically become more soft, sensitive and flexible which is incredible. It’s hard endurance throughout the training session._
 
-_**From the point of view of spiritual self-cultivation: practicing Internal Kongfu is the way leads to the real Taoist.**_
+#### _**From the point of view of spiritual self-cultivation: practicing Internal Kongfu is the way leads to the real Taoist.**_
 
 _In accordance with Taoism means you are physically and mentally close to the nature and harmonious with world, which would make us feel comfortable with our daily life and be in good relationship with the world, happily and peacefully_
 
+#### _**Why Internal Konfu helps to entry the way of Taoism?**_
 
-
-_**Why Internal Konfu helps to entry the way of Taoism?**_
-
-
-
-_Firstly, the purpose and the guideline of practicing Interanl Kongfu is uniform with the Taoism._
+_**Firstly, the purpose and the guideline of practicing Interanl Kongfu is uniform with the Taoism.**_
 
 _Taoism is in accordance with the nature._
 
@@ -75,9 +73,7 @@ _We want to keep self-enhancement so we choose to pursue Taoism._
 
 _Internal Kongfu not only enhance your body physically but also transform your spirit and temperament significantly._
 
-
-
-_Secondly, the training system is in accordance with the Taoism._
+_**Secondly, the training system is in accordance with the Taoism.**_
 
 _We learn knowledge by increasing the quantity while obey the rule of Taoism by decreasing unnecessary things._
 
@@ -85,9 +81,7 @@ _The training system of the Internal Konfu is to seek for the fundamental source
 
 _It would not limit to the external patterns but seek for the internal spirit and conscious in mind changed._
 
-
-
-_Thirdly the process is quite alike to entry the way of Taoism._
+_**Thirdly the process is quite alike to entry the way of Taoism.**_
 
 _People practice Internal Kongfu need to learn about himself in priority, to an extreme extent, he tries to learn about other people and the world, finally he blend harmoniously the essence of Internal Konfu to their life and achieve great success._
 
